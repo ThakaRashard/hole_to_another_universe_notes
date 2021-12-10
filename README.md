@@ -1,0 +1,2 @@
+# hole_to_another_universe_notes
+WRiTTEN_BLOG
